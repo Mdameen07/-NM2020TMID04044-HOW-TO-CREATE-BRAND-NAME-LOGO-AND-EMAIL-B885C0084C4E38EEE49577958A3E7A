@@ -1,4 +1,1 @@
-ASSIGNMENT 1-https://us21.admin.mailchimp.com/templates/
-ASSIGNMENT 2-https://youtu.be/eYcnCiBsD0w?feature=shared
-ASSIGNMENT 3-https://www.facebook.com/profile.php?id=61552767845233&mibextid=ZbWKwL
-ASSIGNMENT 4-https://us21.admin.mailchimp.com/templates/
+https://github.com/Mdameen07/-NM2020TMID04044-HOW-TO-CREATE-BRAND-NAME-LOGO-AND-EMAIL   NM TEAM ID-B885C0084C4E38EEE49577958A3E7A/tree/main
